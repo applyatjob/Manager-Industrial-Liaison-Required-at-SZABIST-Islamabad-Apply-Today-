@@ -12,4 +12,4 @@ This job is ideal for candidates who excel in building partnerships, coordinatin
 This vacancy is officially posted on ApplyatJob, your trusted platform for career advancement. Whether you’re seeking your first big role or the next step in your journey, ApplyatJob helps you explore opportunities based on your background and goals.
 Visit the site now, explore your options, and apply with confidence.
 
-**Apply today**. Grow **tomorrow**. Only on** ApplyatJob**.
+Apply today. Grow tomorrow. Only on ApplyatJob.
